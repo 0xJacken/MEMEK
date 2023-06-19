@@ -1,0 +1,2 @@
+# MEMEK
+MENYAN gosok
